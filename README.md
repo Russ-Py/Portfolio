@@ -18,7 +18,7 @@ Student Researcher For First2 - September 2025 - May 2026
 
 World of Wings Student Worker - December 2023 - September 2025
 
-## Skills
+## Skills found in this Portfolio
 
 Optics
 
